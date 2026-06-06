@@ -1,4 +1,4 @@
-# AP TI1125150_RIAKQ JULIANI
+# AP TI1125150_RIZKA JULIANI
 
 ## Identitas Mahasiswa
 
